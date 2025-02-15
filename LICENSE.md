@@ -1,1 +1,1 @@
-MycoRack © 2025 by MycoPrint is licensed under CC BY-NC-ND 4.0 
+[MycoRack](https://mycoprint.com/products/myco-rack) © 2025 by [MycoPrint](https://mycoprint.com/) is licensed under [CC BY-NC-ND 4.0](https://creativecommons.org/licenses/by-nc-nd/4.0/?ref=chooser-v1) 
